@@ -59,10 +59,10 @@
 
 ### 📫 Let's Connect!
 
-- 💌 Email: contact@codesnap.in
+- 💌 Email: business@codesnap.in
 - 🌐 Website: [www.codesnap.in](https://codesnap.in)
-- 💼 LinkedIn: [soumyadipbanerjee](https://www.linkedin.com/in/soumyadipbanerjee/)
-- 💬 DM me on WhatsApp: [Click to Chat](https://wa.me/918910717653)
+- 💼 LinkedIn: [soumyadipbanerjee](https://www.linkedin.com/in/soumyadip-banerjee-45b4a5202/)
+- 💬 DM me on WhatsApp: [Click to Chat](https://wa.me/919064086231)
 
 ---
 
